@@ -217,4 +217,4 @@ ManyCam is provided as a complete **free version**, ensuring you have access to 
 Don’t miss out on the fun — [**download ManyCam free**](https://www.softyne.com/manycam) today and elevate your webcam experience like never before!
 
 ---
-**Last updated:** 2026-11-05 20:32:10 UTC
+**Last updated:** 2026-11-06 01:27:07 UTC
